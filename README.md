@@ -78,9 +78,7 @@ Option 2: Add to Home Screen (Recommended)
 
 ---
 
-📸 Screenshots
-
-Add your app screenshots here
+WE ALWAYS ADD UPDATES 💬🙂
 
 ---
 
